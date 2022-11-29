@@ -1,0 +1,1 @@
+assigments for copy
